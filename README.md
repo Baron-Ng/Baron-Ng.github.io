@@ -1,2 +1,2 @@
 # Baron-Ng.github.io
-Putting stuff in here
+As of right now, I am using this to plan a vacation to Alaska.
